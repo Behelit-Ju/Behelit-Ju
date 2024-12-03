@@ -1,5 +1,5 @@
 # E ai! Eu sou o Juliana Souza 👋
-### Desenvolvedor Front-end ⚛️
+### Desenvolvedora Front-end ⚛️
 
 ###
 ### 📫 Como me contatar:
